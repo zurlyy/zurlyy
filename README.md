@@ -1,9 +1,8 @@
-![pfp](https://cdn.discordapp.com/attachments/1063496057503363072/1081280759983255572/yeat_pfp.gif)    ![banner](https://cdn.discordapp.com/attachments/1063496057503363072/1081284252458549258/yeat_tonka.gif)
+![banner](https://cdn.discordapp.com/banners/745631824163766412/468e077463e70952270089c1cd9f3c7e.png?size=4096)
 # About me:
 #### - wsg im zurly
-#### - **im** **staff** **@** **[feds.lol](https://feds.lol/ceo)** **aka** **[gg/biolink](https://discord.gg/biolink)**
+#### - **staff** **@** **[feds.lol](https://feds.lol/ceo)** **aka** **[gg/biolink](https://discord.gg/biolink)**
 #### - i cant even code...
-#### - im making this look like my discord profile fr
 #### - **zurly#0001**
 
 # Skills:
