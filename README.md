@@ -1,5 +1,5 @@
 # 💫 About Me:
-**Owner / Developer** at https://soon to come<br>
+**Owner / Developer** at https:// soon to come<br>
 
 
 # 🌐 Socials:
