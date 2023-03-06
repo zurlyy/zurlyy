@@ -6,7 +6,7 @@
 #### - wsg im zurly
 #### - **staff** **@** **[feds.lol](https://feds.lol/ceo)** **aka** **[gg/biolink](https://discord.gg/biolink)**
 #### - i cant even code...
-#### - **zurly#0001**
+#### - **zurly#1337**
 
 # Skills:
 #### - i can barely use python
